@@ -1,1 +1,1 @@
-This words is without swear words. if you want swear words included check this link 
+These words are without swear words. check this link if you want swear words
